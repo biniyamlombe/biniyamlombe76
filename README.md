@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi everyone, my name is Biniyam Lombe. I am Electrical and Electronic Engineer currently based in the UK. 
 
 <!--
 **biniyamlombe76/biniyamlombe76** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
